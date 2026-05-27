@@ -22,7 +22,7 @@ Unduh Aplikasi Termux Nya Dibawah Ini
 
 <h2 align="center">
 
-Unduh Script kk-ktp Dibawah Ini
+Unduh Script kkktp Dibawah Ini
 
 👇👇
 
