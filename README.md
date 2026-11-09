@@ -26,7 +26,7 @@ Unduh Script kkktp Dibawah Ini
 
 👇👇
 
-[![Script kk ktp](https://img.shields.io/badge/Scriptkkktp-%2B-blue.svg?style=flat)](https://sfile.mobi/7hQLHgZlbaU)
+[![Script kk ktp](https://img.shields.io/badge/Scriptkkktp-%2B-blue.svg?style=flat)](https://sfile.co/14zw4ltHcFU)
 
 <h1 align="center">Social Media</h1>
 
